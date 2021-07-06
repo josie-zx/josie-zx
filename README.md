@@ -1,2 +1,3 @@
-👋  Hi, I’m @josie-zx
+👋 
+Hi, I’m @josie-zx
 
